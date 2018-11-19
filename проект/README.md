@@ -1,4 +1,4 @@
-# "Perffecto" One Page Website Template
+# "Perffecto" 
 Сайт проект
 Виконав Гвалт М.М.
 Проект для захисту по курсах wow teachers
